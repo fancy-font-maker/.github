@@ -1,6 +1,8 @@
-Do you want to make your text stand out? A **fancy font maker** is the perfect tool to transform plain text into stylish and creative fonts. Whether you’re updating your Instagram bio, designing a unique username, or creating eye-catching captions, this tool is quick, easy, and free to use.  
-
 [![fancy font maker](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFPDhRwta1WDZ755-sUTnLu2NXl5oi_aDatNsM1PwcCQZHsvYzKxdH0X3K_Zozaka1osvZ2v5NC1CCtTSJKODzOralgGXBIoPjIkh3NSFAWU7zulucsteS144Q-ZbEb4FQRdMr2SrGz6VOy3HEl2yyS6m5xjjowb-TmBQpZYbS_PPaK7x7ucNzb2GZvCFr/w640-h476-rw/Cool%20Text%20Maker.webp)](https://www.cooltextmaker.com/)
+
+---
+
+Do you want to make your text stand out? A **fancy font maker** is the perfect tool to transform plain text into stylish and creative fonts. Whether you’re updating your Instagram bio, designing a unique username, or creating eye-catching captions, this tool is quick, easy, and free to use.  
 
 ---
 
